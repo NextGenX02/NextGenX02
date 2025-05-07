@@ -1,4 +1,4 @@
-## NatsuX Second Account
+## NextGenX (NGX)
 
 I Like to code random stuff!
 
